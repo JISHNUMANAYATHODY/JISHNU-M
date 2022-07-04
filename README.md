@@ -15,4 +15,4 @@
 🤙 Data Analysis <br>
 
 ### Address
-Manayathody ho, Parassery po, <br> kongad, palakkad, kerala <br> ☎️ 8075201890 
+Manayathody ho, Parassery po, <br> kongad, palakkad, kerala <br> Pin: 678631 <br> ☎️ 8075201890 
