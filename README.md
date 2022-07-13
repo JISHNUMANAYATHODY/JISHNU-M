@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning M Tech CSE Specialization Data Science & AI from CUSAT.<br>I have completed MSc-Mathematics from the Central University of Karnataka. 
+I'm currently learning M Tech Computer Science Engineering Specialization in Data Science & Artificial Intelligence from CUSAT.<br>I have completed MSc-Mathematics from the Central University of Karnataka. 
 
 
 ## 🌐 Socials:
